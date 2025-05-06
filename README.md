@@ -1,4 +1,4 @@
-Na# 💫 About Me:
+hii i am Najim 
  I’m currently pursuing Web Development at Ranchi Univer<br> Future goal: Become a professional full-stack developer and start my own tech venture<br>Passionate about building user-friendly websites and web applications<br>Looking for internship/freelance opportunities to gain real-world experience<br><br><br><br>
 
 
